@@ -1,1 +1,0 @@
-# vargazsombor.github.io
